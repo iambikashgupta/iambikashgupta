@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **bikash.gupta.srh@gmail.com**
 
-- ⚡ Fun fact **I learned to pronounce my name at 23!**
+- ⚡ Fun fact **I can cook food from five different countries**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
